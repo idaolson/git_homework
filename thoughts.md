@@ -5,3 +5,5 @@ Mod 0 Takeaways:
 Strategies to try:
 * do homework right after class
 * reread assignment the next day
+
+Shoutout to Rachel Jensen for being a badass friend!
